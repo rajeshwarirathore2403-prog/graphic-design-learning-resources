@@ -19,7 +19,7 @@ Some important skills to learn include:
 
 Students looking for graphic design training can explore available courses, compare their syllabus, understand practical training opportunities, and choose a learning path that suits their goals.
 
-For more information about graphic design courses and classes, visit [Graphic Design Course in Indore](https://futuremultimedia.in/graphic-design-course-in-indore.html).
+For more information about graphic design courses and classes, visit [Graphic Design Course in Indore]https://futuremultimedia.in/graphic-design-course-in-indore.html
 
 ## Conclusion
 
